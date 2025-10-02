@@ -1,1 +1,2 @@
-# the-hunter-lives-in-a-rented-apartment
+# The Hunter Lives In A Rented Apartment
+Il y a dix ans, le jour de la première Grande Faille, Jiho a perdu son père, qui était un courageux pompier. Depuis, elle se consacre à son métier de chasseur, s'entraînant sans relâche pour passer l'examen de l'Association des chasseurs. Un jour, alors qu'elle s'entraîne, une brèche soudaine l'engloutit et la vie de Jiho bascule.
